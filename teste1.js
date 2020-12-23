@@ -1,0 +1,10 @@
+huinbuin
+ncuinuin
+inoini
+inoinm
+innoi
+inonoi
+niopin
+nionio
+iniopnpo
+inoni
